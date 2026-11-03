@@ -1,1 +1,0 @@
-# Parbaudes-darbs-Ivanovskis
